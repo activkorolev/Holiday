@@ -1,6 +1,5 @@
 # Holiday
 Друзья! Я с хорошими новостями  Праздники любите? Думаю, очень.  А мы любим, устраивать их для Вас! 14 апреля (суббота) мы будем ждать Вас на ДНЕ ОТКРЫТЫХ ДВЕРЕЙ!  Для всех вход свободный! Не пропустите! Мастер-классы, угощения, розыгрыши! А также семинар по индивидуальному питанию от   Настоящая весна совсем близко  приходите отмечать ее вместе с нами!
 Актив фитнес студия Адрес: 141077 г. Королев, Октябрьский бульвар, дом 5.
-https://activf2017.blogspot.ru/
-<a href="https://activf2017.blogspot.ru/"><img alt="Актив студия фитнеса Королёв" src="https://goo.gl/gjB9GV" height="31" width="88" border="0" /></a>
-<a href="https://activf2017.blogspot.ru/"><img alt="Актив студия фитнеса Королёв" src="https://lh3.googleusercontent.com/m-LEkrxEHIBKN2PN8dV1e754Vqtd0BGfLF0Vr3YGURKIS1YJz_JTTD351kEod-P2j_3Iko9NtNB7kIJy2bVgw9oTJRpfhic3KSF-vrOrIi_p3o_8gcOkbDqiQeEw2tbIN1L9g5pGNzKm9g_KO2_M25oecpepc2_Kpv5NBmO7Ms9-Jw_4rVR1yZLKMUOUaeFtDxmRv4O6OOqEZSoN28_Q22VFKxUus-wLC2jGtASeDaR2LAdaZuMKab7IRa-YjvchT-RthBoKl2ernuapVN-JXsB5Le_Csp1VdkQORqOe4UGzfvgT3TRuKOpGNbIKxT7LgddwpQRrim3qNciOC3Ou02_ihqUNc4oGfpzgNH5_-ZXaNysnbmb2vwrCJariAYFCMsVcV7Ruc3xqKokKfCJPpflPHqlQ0Msfsu5fA-C5nB6oxO0LadV7MKwp9eEqawiV5IiURaHB4q97BMocxH3b1cY1J7BDlWtrykVdaWdhhqXFnfKMP9CdlKjzE8uj1CX6L6dnZlxE6nn44XmSapDkLUfwaf392_DRXNStWVOcgJsOvbYc7EIjlhH4OsyY0SvGUroDgy_yyI6I7OcleMTaKLV56AVcG3_bLNBd-4g=w593-h594-no" height="300" width="300" border="0" /></a>
+
+<a href="https://activf2017.blogspot.ru/"><img alt="Актив студия фитнеса Королёв" src="https://github.com/activkorolev/Holiday/blob/master/%D0%9F%D1%80%D0%B0%D0%B7%D0%B4%D0%BD%D0%B8%D0%BA%20800.jpg?raw=true" height="150" width="150" border="0" /></a>
